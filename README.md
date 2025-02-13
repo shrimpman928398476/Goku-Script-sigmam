@@ -1,0 +1,2 @@
+# Goku-Script-sigmam
+yuh
